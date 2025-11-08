@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @QZ aka Quiverz
 - 👀 I’m interested in Web3, Entrepreneuship and Marketing
 - 💞️ I’m looking to collaborate on Web3 projects lets go
-- 📫 How to reach me: https://x.com/quiverz_
+- 📫 How to reach me: X -> @quiverz_
 - ⚡ Fun fact: I used to got x10 my portfolio in under 6 months ( hope that counts as an achievement)
 
 <!---
